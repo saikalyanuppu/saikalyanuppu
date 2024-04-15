@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects where I can contribute my skills and learn from experienced developers.
 
-📫 How to reach me: Feel free to reach out to me via email at uppusaikalyan05@gmail.com or connect with me on LinkedIn at .
+📫 How to reach me: Feel free to reach out to me via email at uppusaikalyan05@gmail.com or connect with me on LinkedIn at https://www.linkedin.com/in/uppu-sai-kalyan-7168b5230.
 
 😄 Pronouns: He/Him
 
